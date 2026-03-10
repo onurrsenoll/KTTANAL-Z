@@ -1,0 +1,2 @@
+# KTTANAL-Z
+KUSUR TESPİTİ
